@@ -96,3 +96,6 @@ https://diagmotors.ru/softecu-module-srs-volvo-p2-bosch-cr16-repair-can-bus.php
 СМС-АВТО
 SMSAUTO
 +7 903 295-22-60
+
+- Корпус блока управления ДВС (9452547) - 500.00
+- 
